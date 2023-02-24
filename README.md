@@ -16,15 +16,15 @@ Talk about hobby, I love doing sports. I also like kind of outside activitie lik
 This was a photo I took when I reached He Huan Shan in Taiwan. 
 
 ![爬山](image/爬山.jpg)
-![badmin](image/badmin.jpg)
+![badmin](image/badmin.JPG)
 
 **EDUCATION**
 
 I went to Taiwan in 2018 to persue my bechelor degree in Business Administration in Finance and in the last year of my bechelor I have decided to continue my study in Tunghai University as a Global MBA student.
 
-![畢業](image/畢業.jpg)
+![畢業](image/畢業.JPG)
 
-![IMG_6037](image/IMG_6037.jpg)
+![IMG_6037](image/IMG_6037.JPG)
 
 **Short Story of My Journey in Taiwan** 
 
@@ -33,7 +33,7 @@ I went to Taiwan with zero skill in Mandarin and went to a college majoring in F
 
 Here are the people I was met when I was in college, not all but they were in my college memories forever. Wishing all these people healty and find success in every road you step on!! 
 
-![bday](image/bday.jpg)
+![bday](image/bday.JPG)
 
 I can't believe I've already 5 years here in Taiwan but I am still hoping and looking forward to have a working experience here after I graduated.
 
